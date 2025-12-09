@@ -7,7 +7,7 @@ Department of Information Technology
 Towson University, Towson, USA
 suchenn1@students.towson.edu
 
-Mahade (Mishuk) M.
+Mahade Mishuk
 Towson University, Towson, USA
 Goucher College, Towson, USA
 mmishuk1@students.towson.edu
